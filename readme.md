@@ -22,7 +22,10 @@
 * [How to skate up and down street kerbs](https://youtu.be/bGy41LdQ80Y)
 
 ## Slopes
+* [Lunge Turn](https://youtu.be/pbQmLsUZxNg)
+* [Parallel Turn](https://youtu.be/VatpOZYZ3zE)
 * [How to control speed on slopes with slalom](https://youtu.be/oH4sP65HMtA)
+* [How to use Turns to control speed and stop on downhill](https://youtu.be/bNu5J82B2IA)
 
 ## Backwards
 * [Backwards to Forwards Mohawk Transition](https://youtu.be/aHBagetaL2c)
