@@ -6,10 +6,11 @@
 ## Skate Forwards
 * [Lemon](https://youtu.be/fC0abxqp7UE?t=416)
 * [Slalom](https://youtu.be/fC0abxqp7UE?t=308)
+* [Crossover](https://youtu.be/j7u6myjsYIY)
 
-## How To Skate On Only One Leg
+## One Leg
 * [Body Posture And Balance](https://youtu.be/C91-Zvhh6_8?t=68)
-* [One Leg](https://youtu.be/C91-Zvhh6_8?t=249)
+* [How To Skate On Only One Leg](https://youtu.be/C91-Zvhh6_8?t=249)
 
 ## Speed
 * [Stride Training Sequence](https://youtu.be/xwEmJxzi7SQ)
