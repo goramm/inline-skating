@@ -6,6 +6,7 @@
 ## Stops
 * [Heel break](https://youtu.be/ebt5EngtaUs)
 * [Plow](https://youtu.be/c6iiniZwD_8)
+* [Lunge Stop](https://youtu.be/ljseYexT3cE)
 
 
 ## Forwards
@@ -14,6 +15,7 @@
 * [Lunge Turn](https://youtu.be/pbQmLsUZxNg)
 * [Slalom](https://youtu.be/fC0abxqp7UE?t=308)
 * [Crossover](https://youtu.be/j7u6myjsYIY)
+* [Crossover 2](https://youtu.be/inb3ypISGBA?t=186)
 
 ## One Leg
 * [Body Posture And Balance](https://youtu.be/C91-Zvhh6_8?t=68)
