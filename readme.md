@@ -2,6 +2,7 @@
 
 ## Basics
 * [Complete Tutorial](https://www.youtube.com/playlist?list=PLq5U4-rD1f_Wt0IykgR-nPWDT-8x2cODK)
+* [Body position](https://youtu.be/rn5WixdiaE4)
 
 ## Stops
 * [Heel break](https://youtu.be/ebt5EngtaUs)
