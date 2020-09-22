@@ -3,6 +3,7 @@
 ## Basics
 * [Complete Tutorial](https://www.youtube.com/playlist?list=PLq5U4-rD1f_Wt0IykgR-nPWDT-8x2cODK)
 * [Body position](https://youtu.be/rn5WixdiaE4)
+* [Body posture and balance](https://youtu.be/C91-Zvhh6_8?t=68)
 
 ## Stops
 * [Heel break](https://youtu.be/ebt5EngtaUs)
@@ -19,7 +20,6 @@
 * [Crossover 2](https://youtu.be/inb3ypISGBA?t=186)
 
 ## One Leg
-* [Body Posture And Balance](https://youtu.be/C91-Zvhh6_8?t=68)
 * [How To Skate On Only One Leg](https://youtu.be/C91-Zvhh6_8?t=249)
 
 ## Speed
